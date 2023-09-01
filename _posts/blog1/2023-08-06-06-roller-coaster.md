@@ -1,6 +1,6 @@
 ---
 layout: blog
-title: 0
+title: Arti mimpi naik roller coaster
 permalink: /06/
 ---
 Arti mimpi naik roller coaster
